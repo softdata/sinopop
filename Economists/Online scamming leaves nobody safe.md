@@ -1,6 +1,4 @@
-# Online scamming leaves nobody safe
 
-Reviewed: No
 
 # The vast, sophisticated and fast-growing global enterprise that is Scam Inc
 
@@ -38,4 +36,7 @@ To fight the scammers, the authorities must create networks of their own. Today 
 
 Countries also need to look across their borders. When criminals move money and people through many jurisdictions, global law-enforcement machinery cannot keep up. Many scam bosses are from mainland China and the Chinese Communist Party arrests hundreds of thousands of alleged scammers each year. No country understands the scale and sophistication of the criminal groups better. At a time when America and China are at loggerheads, scamming is one area where they could - and should - work together for the common good.
 
-[https://www.cscz.org/2025/02/blog-post_99.html](https://www.cscz.org/2025/02/blog-post_99.html)
+
+
+[庞大而复杂的全球诈骗业](https://www.cscz.org/2025/02/blog-post_99.html)
+
